@@ -5,7 +5,7 @@ Are you looking to play **Google Doodle Baseball Unblocked**? Whether you're in 
 ## What is Google Doodle Baseball?
 Google Doodle Baseball is a fun and interactive baseball game introduced by Google on July 4, 2019, to celebrate Independence Day in the United States. The game features a quirky matchup between a team of peanuts and classic ballpark foods like hot dogs and soda cups. The objective is simple: hit as many home runs as possible and achieve the highest score!
 
-## <a href="https://classroom-6x-cool.gitlab.io/">👉 Play Doodle Baseball Unblocked👈</a>
+## <a href="https://classroom-6x-cool.gitlab.io/">👉 Doodle Baseball Unblocked👈</a>
 
 ![Doodle Baseball Unblocked](https://github.com/user-attachments/assets/0d405213-1d27-4b3d-9a57-741c166afd72)
 
@@ -21,12 +21,10 @@ If you're looking for ways to enjoy **Doodle Baseball Unblocked Classroom 6x**, 
 - **Simple & Fun Gameplay**: Easy controls make it accessible for all ages.
 - **Perfect for Quick Breaks**: Enjoy a few rounds during your free time.
 
-![Google Doodle Baseball Unblocked](https://classroom-6x-cool.gitlab.io/)
-
 ## Where to Play Doodle Baseball Unblocked Classroom 6x
 For students looking to play during free periods, **Doodle Baseball Unblocked Classroom 6x** can be found on several game-hosting sites that allow gaming in school environments. These sites ensure a smooth and hassle-free gaming experience without restrictions.
 
 ## Conclusion
-Whether you're a baseball fan or just looking for a way to pass the time, ![Doodle Baseball Unblocked](https://classroom-6x-cool.gitlab.io/) is a fantastic choice. Play it anywhere, anytime, and challenge yourself to beat your high score!
+Whether you're a baseball fan or just looking for a way to pass the time, [Google Doodle Baseball Unblocked](https://classroom-6x-cool.gitlab.io/) is a fantastic choice. Play it anywhere, anytime, and challenge yourself to beat your high score!
 
 Enjoy the game and hit those home runs! ⚾🎉
