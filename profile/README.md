@@ -21,6 +21,8 @@ If you're looking for ways to enjoy **Doodle Baseball Unblocked Classroom 6x**, 
 - **Simple & Fun Gameplay**: Easy controls make it accessible for all ages.
 - **Perfect for Quick Breaks**: Enjoy a few rounds during your free time.
 
+![Google Doodle Baseball Unblocked](https://github.com/user-attachments/assets/ca906ad6-d5bb-4c40-8830-50fc3cac7a1c)
+
 ## Where to Play Doodle Baseball Unblocked Classroom 6x
 For students looking to play during free periods, **Doodle Baseball Unblocked Classroom 6x** can be found on several game-hosting sites that allow gaming in school environments. These sites ensure a smooth and hassle-free gaming experience without restrictions.
 
